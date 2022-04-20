@@ -54,4 +54,8 @@ Add Ons to be Implemented
 
 ⌨️ Outputs
 
-s
+
+For any Queries Please contact: Shaun Rodrigues 
+Email ID: Shaunrod114@gmail.com
+LinkedIN Profile: www.linkedin.com/in/shaun-shantiago-rodrigues-79376078
+
